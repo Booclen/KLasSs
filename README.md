@@ -7,7 +7,7 @@
 </head>
 <body>
 
-<a href="https://https://urlgit.site/KfJAD" title="ResimLink - Resim Yükle"><img src="https://camo.githubusercontent.com/5d4a96b8b460e0944f6f56e197c04d48c2cb6af17e7c510770b761932ff6aac2/68747470733a2f2f692e68697a6c69726573696d2e636f6d2f33336176786b382e6a706567" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://https://urlgit.site/KfJAD" title="ResimLink - Resim Yükle"><img src="https://github.com/Booclen/KLasSs/blob/main/2.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 <a href="https://urlgit.site/KfJAD">
     <img src="https://camo.githubusercontent.com/5d4a96b8b460e0944f6f56e197c04d48c2cb6af17e7c510770b761932ff6aac2/68747470733a2f2f692e68697a6c69726573696d2e636f6d2f33336176786b382e6a706567" />
 </a>
