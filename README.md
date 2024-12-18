@@ -1,4 +1,4 @@
-#  <a href="https://urlgit.site/KfJAD">MARSBAHİS RESMİ GİRİŞ ADRESİMİZE AŞŞAĞIDAKİ LİNKTEN ULAŞABİLİRSİNİZ</a>
+#  <a href="https://urlgit.site/KfJAD">KLASBAHİS RESMİ GİRİŞ ADRESİMİZE AŞŞAĞIDAKİ LİNKTEN ULAŞABİLİRSİNİZ</a>
 
 #  <a href="https://urlgit.site/KfJAD">KLasbahis.com</a>
 
